@@ -3,7 +3,7 @@
 xWinner; It offers ease of use in the games and entertainment industry using blockchain technology, and allows you to receive faster and safer payments from micro earning platforms.
 
 You can also sell your digital products. You can earn by using the Faucet micro earning software that we offer with free open source codes. 
-And your use other platforms.
+And your can use other platforms.
 
 XLM & XWNR Faucet Platform
 https://xlmwin.com
